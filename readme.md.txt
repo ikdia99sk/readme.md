@@ -1,0 +1,1 @@
+Hola, mi nombre es iker, en minecraft conocido como 1qvIker34, soy developer de bots de discord profesionalmente, he hecho bastantes bots para mi servidor, como el de staff y el del discord principal, si quieres contrartarme para que te cree un bot custom para tu servidor, hablame al dm! ikerblack.1111 para contactarme por discord.
